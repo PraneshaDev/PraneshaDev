@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @PraneshaDev
 - 👀 I’m interested in coding...
 - 🌱 I’m currently learning B.tech in CSE
-- 💞️ I’m looking to collaborate on Linkedin
 - 📫 How to reach me https://www.instagram.com/praneshadev/profilecard/?igsh=eDI3czFtNWdvZnRm
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: Iam a writer by passion
